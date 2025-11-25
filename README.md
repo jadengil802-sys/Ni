@@ -1,1 +1,1 @@
-Stealing peoples toys, brain rock characters, buildings, and rebirth  stealing peoples toys, brain rock characters, buildings and rebirth and collecting money 
+Stealing peoples toys, brain rock characters, buildings, and rebirth  stealing peoples toys, brain rock characters, buildings and rebirth and collecting money but the weapons are guns, swords, slap, hand
